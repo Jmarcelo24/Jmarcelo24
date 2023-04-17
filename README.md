@@ -1,5 +1,11 @@
 ### Hi there 👋
+# Jose Marcelo Ponce Hernandez
+##### cosas que sobresalen de Marcelo
 
+soy una persona trabajadora, tratando de superar todos los retos posibles haciendo un ambiente entre compañeros muy pasiva donde trabajo cada tarea que me ponen y es por eso que estudio en la Universidad Tecnologica
+Estudio Ingenieria en sistemas y computacion
+
+Me gustan mucho los videojuegos y jugar futbol
 <!--
 **Jmarcelo24/Jmarcelo24** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
