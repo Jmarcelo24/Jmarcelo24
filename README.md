@@ -1,6 +1,6 @@
 ### Hi there 👋
 # Jose Marcelo Ponce Hernandez
-##### cosas que sobresalen de Marcelo
+##### soy un estudiante de primer año
 
 soy una persona trabajadora, tratando de superar todos los retos posibles haciendo un ambiente entre compañeros muy pasiva donde trabajo cada tarea que me ponen y es por eso que estudio en la Universidad Tecnologica
 Estudio Ingenieria en sistemas y computacion
